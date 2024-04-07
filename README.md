@@ -1,0 +1,2 @@
+# LostinTranslation
+Nihongo no Nōto
